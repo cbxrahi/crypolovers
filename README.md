@@ -1,2 +1,2 @@
-# crypolovers
+# crypto lovers
 Airdrops for cryptos
